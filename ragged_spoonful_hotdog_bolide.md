@@ -1,0 +1,16 @@
+      Demeisen stood. He looked cadaverous, hollow-cheeked. Dark eyes with no whites, two ridges instead of eyebrows, a flat nose
+         and mid-dark skin, scarred in places. He was only medium tall but his height was emphasised by his thinness. If his physiology was the same as a Sichultian’s then the slight bagginess
+         about his face implied the weight loss had been recent and rapid. His clothes were dark, perhaps black: skinny trews and a
+         tight-fitting shirt or jacket, partially closed at the neck by a thumb-sized, blood-red glittering jewel on a loosened choker.
+      
+      
+      Lededje saw him look at her right hand and so put it out to him. His hand clasped her hand, fingers with too many joints closing
+         around like a bony cage. His touch felt very warm, almost feverish, though perfectly dry, like paper. She saw him wince and
+         noticed that two of his fingers were crudely splinted together with a small piece of wood or plastic and what looked like
+         a piece of knotted rag. Somehow the wince didn’t travel all the way to his face, which regarded her without obvious expression.
+      
+      
+      “Good evening,” Lededje said.
+      
+      “Ms. Y’breq.” His voice sounded dry and cold. He nodded at Jolicci then indicated the seats on either side of him. “Wheloube,
+         Emmis. If you would.”
