@@ -1,0 +1,35 @@
+
+      “It’s a neural lace,” the doctor said, sounding exhausted.
+      
+      “A neural lace,” Veppers repeated.
+      
+      
+      He’d heard of these things. They were the sort of device that highly advanced aliens who’d started out squidgy and biochemical
+         – as squidgy and biochemical as Sichultians, for example – and who had not wanted to upload themselves into nirvana or oblivion
+         or wherever, used when they wanted to interface with machine minds or record their thoughts, or even when they wanted to save
+         their souls, their mind-states.
+      
+      
+      Veppers looked at Sulbazghi. “Are you saying,” he said slowly, “that the girl had a neural lace in her head?”
+      
+      That shouldn’t be possible. Neural laces were illegal for Sichultians. Great God, fucking drug glands were illegal for Sichultians.
+      
+      “Kind of looks like it,” Sulbazghi said.
+      
+      “And it never showed up?” Veppers asked. He stared at the doctor. “Sulbazghi, you must have scanned that girl a hundred times.”
+      
+      “They don’t show up using the equipment we’ve got to look with,” Sulbazghi said. He stared down at the thing in his hand,
+         gave a tiny, despairing laugh. “Minor miracle we can see it with the naked eye.”
+      
+      
+      “Who put it in her?” Veppers asked. “The clinicians?”
+      
+      Sulbazghi shook his head. “Impossible.”
+      
+      “Then who?”
+      
+      “I’ve done a quick bit of investigating since the doctor told me about this,” Jasken said. “We need help here, sir: somebody
+         who properly knows about this sort of thing—”
+      
+      
+      “Xingre,” Sulbazghi said. “He’ll know, or know better how to find out.”
