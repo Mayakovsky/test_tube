@@ -1,4 +1,4 @@
-_I suppose, however, that the majority of at least competent votes
+I suppose, however, that the majority of at least competent votes
 would, all things considered, be divided between_ Emma _and the present
 book; and perhaps the vulgar verdict (if indeed a fondness for Miss
 Austen be not of itself a patent of exemption from any possible charge
@@ -11,4 +11,4 @@ I, for my part, declare for_ Pride and Prejudice _unhesitatingly. It
 seems to me the most perfect, the most characteristic, the most
 eminently quintessential of its author’s works; and for this contention
 in such narrow space as is permitted to me, I propose here to show
-cause._
+cause.
