@@ -1,14 +1,17 @@
-_I suppose, however, that the majority of at least competent votes
-would, all things considered, be divided between_ Emma _and the present
-book; and perhaps the vulgar verdict (if indeed a fondness for Miss
-Austen be not of itself a patent of exemption from any possible charge
-of vulgarity) would go for_ Emma. _It is the larger, the more varied, the
-more popular; the author had by the time of its composition seen rather
-more of the world, and had improved her general, though not her most
-peculiar and characteristic dialogue; such figures as Miss Bates, as the
-Eltons, cannot but unite the suffrages of everybody. On the other hand,
-I, for my part, declare for_ Pride and Prejudice _unhesitatingly. It
-seems to me the most perfect, the most characteristic, the most
-eminently quintessential of its author’s works; and for this contention
-in such narrow space as is permitted to me, I propose here to show
-cause._
+global climate change
+Screen reader users: click this link for accessible mode. Accessible mode has the same essential features but works better with your reader.
+Books
+Front Cover	
+Reading Eagle
+global climate change
+ Search all issues
+About this newspaper
+
+View all newspapers
+
+Browse all issues
+
+Shop for Books
+Browse the world's largest eBookstore and start reading today on the web, tablet, phone, or ereader.
+
+Get this newspaper
